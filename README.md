@@ -1,2 +1,0 @@
-# teutetbibi.github.io
-gd
